@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RaziffAzi
 - 👀 I’m interested in whatever catches my attention.
-- 🌱 I’m currently learning too many things that my brain can't handle.
+- 🌱 I’m currently learning too many things that my brain can hardly keep up.
 - 💞️ I’m looking to collaborate on ... I don't know, I usually prefer individual tasks.
 - 📫 How to reach me: Try finding me in my bed.
 - 😄 Pronouns: Cute
